@@ -45,7 +45,7 @@ Sangvish offers the best [Airbnb Clone Software](https://sangvish.com/airbnb-clo
 
 Join with us- https://sangvish.com/airbnb-clone/ 
 
-** Book a Free Consultation via, **
+** Book a Free Consultation via,**
 
 Call: +91- 9043193012
 
